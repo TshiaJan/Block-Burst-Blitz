@@ -1,6 +1,7 @@
 # Privacy Policy for Block Burst Blitz
 
 **Last Updated:** September 17, 2026
+email janaire.dev@gmail.com
 
 Welcome to **Block Burst Blitz** ("we," "our," or "us"). We are committed to protecting your privacy and providing a safe, enjoyable gaming experience. This Privacy Policy outlines our practices regarding data collection, use, and disclosure when you install and play Block Burst Blitz.
 
